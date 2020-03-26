@@ -1,2 +1,1 @@
-# TMX
-Script Hacking By PythoN
+تم إغلاق هذا الطريقة بسب حقوق الفيس بوك... 
